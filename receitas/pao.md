@@ -1,4 +1,4 @@
-**receita vegana pão de chia**:plate_with_cutlery:
+# Receita vegana pão de chia:plate_with_cutlery:
 
 - 250 g de macaxeira (mandioca/aipim) cozida e amassada
 - 250 g de polvilho doce ou azedo
@@ -11,4 +11,12 @@
 
 
 
-Misture os ingredientes secos em um tigelaAdicione o azeite e misture até virar uma farofinhaJunte a macaxeira cozida e comece a trabalhar a massa incorporando todos os ingredientes - é coisa rápidaColoque água aos poucos (bem pouco mesmo!) somente até a massa começar a soltar das mãosModele as bolinhas e distribua em uma assadeira untada (rende +/- 30)Leve ao forno preaquecido a 200 graus até a casca ficar firme
+Misture os ingredientes secos em um tigela
+
+Adicione o azeite e misture até virar uma farofinha
+
+Junte a macaxeira cozida e comece a trabalhar a massa incorporando todos os ingredientes - é coisa rápida
+
+Coloque água aos poucos (bem pouco mesmo!) somente até a massa começar a soltar das mãos
+
+Modele as bolinhas e distribua em uma assadeira untada (rende +/- 30)Leve ao forno preaquecido a 200 graus até a casca ficar firme
